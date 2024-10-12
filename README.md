@@ -1,4 +1,4 @@
-# Weekend Chill Spots
+# Wander-Weekends
 
 ## 🌟 Overview
 
